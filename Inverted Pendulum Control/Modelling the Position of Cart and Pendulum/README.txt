@@ -1,1 +1,0 @@
-For complete tutorial of how to derive these equations, please visit this link: https://www.youtube.com/watch?v=c3z4eo6s0Ek&pp=ygUbaW52ZXJ0ZWQgcGVuZHVsdW0gbW9kZWxsaW5n
